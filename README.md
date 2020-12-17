@@ -1,4 +1,4 @@
-# MacDo-E-Reputation-
+# Macdonald France E-Reputation-
 <center>
 Publier, c’est bien, mais analyser, c’est mieux !
 Il est important de vérifier l’impact, la portée de votre publication : 
